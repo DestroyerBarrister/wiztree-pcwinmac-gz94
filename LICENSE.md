@@ -1,4 +1,4 @@
-# 
+# Professional WizTree workflow for Mac OS | Turbo WizTree workflow for PC Windows. Featuring registry optimization and file compression — optimized for maximum performance on every platform.
 
 
 
